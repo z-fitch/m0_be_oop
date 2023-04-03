@@ -6,4 +6,4 @@ it was a bit stressful, I couldnt figure out some of the answers and it was a bi
 Its been decent, this weekend was the worst but Im getting mroe used to letting my brain rest and then moving on. 
 - What did you learn from this exercise that you want to remember as you begin Mod 1?
 
-How everything connects and the different codes taht really trie everything together. 
+How everything connects and the different codes thatt really tries everything together. 
